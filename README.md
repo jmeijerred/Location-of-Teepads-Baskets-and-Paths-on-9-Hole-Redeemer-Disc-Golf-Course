@@ -1,0 +1,1 @@
+# Location-of-Teepads-Baskets-and-Paths-on-9-Hole-Redeemer-Disc-Golf-Course
